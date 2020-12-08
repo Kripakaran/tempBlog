@@ -1,1 +1,2 @@
-# hello world its me kripakaran
+# site under construction :) ~kripakaran
+
